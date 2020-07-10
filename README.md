@@ -5,5 +5,5 @@
 ### Hi there! Welcome! 👋 
 
 My name is Vagner Barbosa.
- - 💙 In the IT since 2012. Software Engineer in search of a professional environment that is more humanized, inclusive and responsible! :)
+ - In the IT since 2012. Software Engineer in search of a professional environment that is more humanized, inclusive and responsible! 😀
 
